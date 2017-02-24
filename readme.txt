@@ -1,2 +1,5 @@
-hello
-Lubba
+I  like github
+logical thinking
+re
+lubabalo
+lubba
